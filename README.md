@@ -9,7 +9,6 @@
 
 #### 👾 Connect
 - [Twitter](https://twitter.com/SAINt_KIDME)
-
-ENS:  kidme.eth
+- [kidme.eth](https://islands.xyz/@kidme/gallery) ENS
 
 🏰🐊 
